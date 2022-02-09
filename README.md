@@ -1,1 +1,0 @@
-Mintech Privacy Policy
