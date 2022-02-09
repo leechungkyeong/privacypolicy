@@ -1,1 +1,1 @@
-# privacypolicy
+Mintech Privacy Policy
